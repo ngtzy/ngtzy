@@ -1,4 +1,4 @@
-## Im currently a student in Electronic Physics and Information Technology from VNUHCM - University of Science ✩
+## ✩
 I am tzy
 
 
