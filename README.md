@@ -1,4 +1,4 @@
-## Hi there 👋
+## Im currently a student in Electronic Physics and Information Technology from VNUHCM - University of Science ✩
 
 <!--
 **ngtzy/ngtzy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
